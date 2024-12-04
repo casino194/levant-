@@ -1,4 +1,4 @@
-<h1 dir="ltr"><strong><strong>Levant Casino</strong></strong></h1>
+<h1 dir="ltr"><strong><strong>Levant Casino - Türkiye'de oynayın</strong></strong></h1>
 
 <p dir="ltr"><strong><a href="https://depo.media/fSMBrv/?subId2=trgit" style="text-decoration: none;"><u>Levant Casino&#39;da oynayın</u></a></strong></p>
 
